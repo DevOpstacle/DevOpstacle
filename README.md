@@ -1,3 +1,3 @@
 # Team Members
 -
-### andrew sherif 
+### andrew sherif : any time exept friday 

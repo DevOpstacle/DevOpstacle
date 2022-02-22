@@ -6,8 +6,4 @@
 + Michael Siha available all week.
 - Ragi beshay - Available all mornings till 1 pm PT except Saturaday and Sunday
 
-SAMEH HANNA - Available all mornings
-
-- hello .
-# - how are you today 
-
+SAMEH HANNA - avaliable all mornings all week 

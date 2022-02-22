@@ -5,5 +5,12 @@
 - Andrew Sherif available all the time except friday. 
 + Michael Siha available all week.
 - Ragi beshay - Available all mornings till 1 pm PT except Saturaday and Sunday
+SamDevOps
+
+SAMEH HANNA - Available all mornings
+
+- hello .
+# - how are you today 
+
 - Sam Hana - Avaliable all mornings 7 days a week .
-- #ggggg
+- # gggg

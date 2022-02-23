@@ -14,3 +14,4 @@ SAMEH HANNA - Available all mornings
 
 - Sam Hana - Avaliable all mornings 7 days a week .
 - # gggg
+- Mina - Available on Sunday and Thursday from 8 PM and on Saturday all day.

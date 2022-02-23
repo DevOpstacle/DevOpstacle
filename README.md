@@ -5,4 +5,4 @@
 - Andrew Sherif available all the time except friday. 
 + Michael Siha available all week.
 - Ragi beshay - Available all mornings till 1 pm PT except Saturaday and Sund
-= Monica Mosaad - Available everyday
+- Monica Mosaad - Available everyday

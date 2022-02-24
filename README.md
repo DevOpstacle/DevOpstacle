@@ -7,3 +7,4 @@
 - Ragi beshay - Available all mornings till 1pm PT except Saturaday and Sunday
 - Sam Hana - Avaliable all mornings 7 days a week .
 - Mina - Available on Sunday and Thursday from 8 PM and on Saturday all day.
+- Paula available all the time except friday.

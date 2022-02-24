@@ -6,8 +6,5 @@
 - Michael Siha available all week.
 - Ragi beshay - Available all mornings till 1pm PT except Saturaday and Sunday
 - Sam Hana - Avaliable all mornings 7 days a week .
-<<<<<<< HEAD
-- [click here](http://www.facebook.com)
-=======
 - Mina - Available on Sunday and Thursday from 8 PM and on Saturday all day.
->>>>>>> 204b81b5d6eddd81bbb5218230ff271a578c46dd
+- Veronia Osama Ragaey Zaki - Available on Thursday from 9:00 PM and Saturday from 7:00 PM
